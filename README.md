@@ -1,0 +1,2 @@
+# datenschutz
+Genereller Datenschutzhinweis
